@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Axle-19
+👋 Hi, I’m @Axle-19
 - 👀 I’m interested in all type of Coding
 - 🌱 I’m currently learning on whatever i found interesting
 - 💞️ I’m looking to collaborate on anyone
